@@ -1,1 +1,1 @@
-[Дашборд в DataLens](https://datalens.yandex.ru/your-dashboard-id)
+[Дашборд в DataLens](https://datalens.ru/sxxh58g1hqiqd)
